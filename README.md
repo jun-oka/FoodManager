@@ -1,1 +1,1 @@
-Hi
+Hi JUNCTION TOKYO!!(｀･ω･´)ゞ
